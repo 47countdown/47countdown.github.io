@@ -1,1 +1,1 @@
-# 47countdown is down for matiniance 
+# 47countdown is down for Maintenance 
